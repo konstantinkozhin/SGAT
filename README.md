@@ -5,4 +5,4 @@
 
 Гугл Диск - https://drive.google.com/file/d/10yOlIzj2OjDNf_y-62NtBg0bRx6qQwTn/view?usp=share_link
 
-По всем вопросам пишите сюда - https://t.me/konstantin_kozhin
+По всем вопросам пишите сюда - https://t.me/prog_frog
